@@ -4,7 +4,7 @@
 - 💞️ 目前在学习的技能：虚拟货币量化交易及自动化程序
 - 🌱 目前已完成的系统：高精度AI代码审计平台、漏洞提交平台、驱动级权限维持
 - 😄 联系方式Telegram：[@mengxiangjia902](https://t.me/mengxiangjia902)
-
+- 💴 自从生了场大病，我深刻意识到了钱的重要性，所以我成了视财如命的俗人
 <!---
 smallcat9612/smallcat9612 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
