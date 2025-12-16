@@ -7,7 +7,7 @@
 - 💴 自从生了场大病，我深刻意识到了钱的重要性，所以我成了视财如命的俗人
 - 💴 小孩子爱分对错，成年人只讲利弊。贪财好色在任何时候都没有错。
 - 💴 无条件50%，招bc代理。
-- 💴 底薪2W，招聘bc代理10%，有条件。
+- 💴 底薪2W，招聘bc代理30%，有条件。
 <!---
 smallcat9612/smallcat9612 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
